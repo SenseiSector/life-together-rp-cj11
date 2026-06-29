@@ -1,4 +1,4 @@
-
+life together rp Scripts updated is the best life together rp Script, featuring no cooldown and anti-ban. Safe and powerful for all your needs.
 
 
 
